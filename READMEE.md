@@ -1,1 +1,0 @@
-# alzakariahaqqy.github.io
